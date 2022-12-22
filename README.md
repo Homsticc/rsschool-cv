@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Homsticc.github.io/rsschool-cv/
